@@ -1,4 +1,4 @@
-#  
+#  premium Script for blue lock rivals offers the most advanced blue lock rivals Script, with undetectable and one-hit kill. Perfect for dominating any
 
 
 
